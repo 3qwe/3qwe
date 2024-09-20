@@ -1,4 +1,4 @@
-Discord: fanICH#3615
+Discord: 3qwe
 ____________________
 Telegram: @G_3qwe
 
